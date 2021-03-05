@@ -1,5 +1,5 @@
 ---
-title: Bedste Drone 2020
+title: Bedste Drone 2021
 cover: drone-2724257_1920.jpg
 ---
 
