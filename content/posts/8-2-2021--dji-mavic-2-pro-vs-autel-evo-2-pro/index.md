@@ -60,4 +60,4 @@ Derimod havde Autel Evo 2 en del sværere ved holde fokusset og der kan opstå t
 </div>
 
 <br>
-<a href="https://bedstedronetilprisen.dk/bedste-drone-til-prisen" target="_blank">Tjek også vores bud på de bedste drone i 2020</a>
+<a href="https://bedstedronetilprisen.dk/bedste-drone-til-prisen" target="_blank">Tjek også vores bud på de bedste droner i 2021</a>
